@@ -1,1 +1,0 @@
-A half-elf scholar who has come to Ten Towns to investigate the mystical nature of the land. She wishes to study the strange magic that has brought the long night to [[Icewind Dale]].

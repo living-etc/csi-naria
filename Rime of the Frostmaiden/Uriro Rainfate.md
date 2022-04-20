@@ -1,1 +1,0 @@
-[[Hlin Trollbane|Hlin Trollbane's]] contact in [[Dougan's Hole]]. 

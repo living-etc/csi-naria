@@ -1,1 +1,0 @@
-![[Icewind Dale.jpeg]]

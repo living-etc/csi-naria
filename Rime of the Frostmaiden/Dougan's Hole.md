@@ -1,1 +1,0 @@
-One of the smaller settlements in [[Ten Towns]]. The [[The Children of Auril]] have significant influence here.

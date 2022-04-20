@@ -1,1 +1,0 @@
-Proprietor of the [[Northlook Inn and Tavern]].
